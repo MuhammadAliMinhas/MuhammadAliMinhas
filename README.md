@@ -4,7 +4,7 @@
 
 - 🌱 I’m currently learning **Web And Desktop Development**
 
-- 💬 Ask me about **Bootstrap**
+- 💬 Ask me about **Nothing yet**
 
 - 📫 How to reach me **Thatherogamer123123123@gmail.com**
 
